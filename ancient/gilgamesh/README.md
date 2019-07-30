@@ -5,6 +5,7 @@
 
 **07.29.2019**
 The degree of similarity between the stories of Utanapishtim and of Noah is well demonstrated in a comparison of their respective accounts of the aftermath of the Great Flood. The Mesopotamian survivor relates his ordeal to Gilgamesh as follows:
+```text
    Six days and seven nights the gale-winds blew,
    The rain poured down, the Flood flattened the land.
    But when the seventh day dawned
@@ -45,7 +46,7 @@ The degree of similarity between the stories of Utanapishtim and of Noah is well
   And gathered like flies around the sacrifice.
   (Tablet XI 120–57)
 
-
+```
 The King James Bible describes the conclusion of Noah’s tribulations thus:
  
 4. And the ark rested in the seventh month, on the seventeenth day of the month, upon the mountains of Ararat. 5. And the waters decreased continually until the tenth month: in the tenth month, on the first day of the month, were the tops of the mountains seen. 
