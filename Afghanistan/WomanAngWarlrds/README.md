@@ -1,0 +1,5 @@
+A Woman Among Warlords
+The Extraordinary Story of an Afghan Who Dared to Raise Her Voice
+Written by: Malalai Joya
+
+Growing up in refugee camps in Iran and Pakistan, Malalai Joya dreamed of helping people in her home country of Afghanistan. She began by teaching in secret girls' schools, and founding a free medical clinic and orphanage. But that wasn't enough: Afghanistan's leaders needed to change. In 2003, at only 25 years of age, she stood up at a constitutional assembly and defied the NATO-backed warlords; two years later, she became the youngest person elected to Afghanistan's new Parliament. And two years after that, she was suspended from Parliament because of her ongoing criticism of the warlords and those who support them. This powerful account of both acts of rebellion and the courage it takes to change a nation celebrates one of modern Afghanistan's heroic women.

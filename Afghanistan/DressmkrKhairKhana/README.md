@@ -1,0 +1,5 @@
+The Dressmaker of Khair Khana
+Five Sisters, One Remarkable Family, and the Woman Who Risked Everything to Keep Them Safe
+Written by: Gayle Tzemach Lemmon
+Recommended Age: Adults
+Young Kamila Sidiqi faced many obstacles as a woman in Afghanistan, but she was able to earn a teaching degree despite the disruptions of the civil war. But when the Taliban seized Kabul in 1995, her life changed overnight. Suddenly, she was banned from her school and confined at home — and when her father and brother were targeted by the insurgents and had to flee, she became the only breadwinner for five siblings. Determined to survive, she started a dressmaking business. Despite threats, beatings, and even imprisonment, she kept working, and her business slowly grew, first employing her sisters, and then providing work and training for other neighborhood women in desperate circumstances. This true story of resilience and sisterhood is a testament to the power of the human spirit.

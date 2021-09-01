@@ -1,0 +1,4 @@
+The Broken Circle: A Memoir of Escaping Afghanistan
+Written by: Enjeela Ahmadi-Miller
+
+With so many images of turmoil in the news, it's easy to forget that there was a time that Kabul, Afghanistan was peaceful and prosperous. Enjeela Ahmadi was born during that time of peace, in a loving, connected family. But unrest was rising, and her mother had to leave for medical treatment in India — just before the civil war exploded and the Soviets invaded in 1980. Suddenly, Enjeela and her family have to face the reality that her mother is not coming home: if they want to reunite with her, they will have to escape. This is the story of that five-year journey, full of the brutalities of war and the shocking realization that the country they know has been changed forever. This tense and emotional book is a reminder of the decades of broken families that Afghanistan's turmoil has created.

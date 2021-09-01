@@ -1,0 +1,5 @@
+Dancing in the Mosque
+An Afghan Mother's Letter to Her Son
+Written by: Homeira Qaderi
+
+Growing up in Afghanistan, author Homeira Qaderi's grandmother once told her "a girl should have fear in her eyes" — but her parents secretly helped her get an education, even when that meant burying books in the backyard so they wouldn't be discovered by the Taliban. As a 13-year-old, Qaderi became a secret teacher for younger girls and, as an adult, she fought for women's rights. But when she refused to accept her husband's desire to marry a second wife, he divorced her via a three-word text message reading ‘divorce, divorce, divorce’ — and took 19-month-old son, Siawash, away from her. This searing new memoir is her story as she would wish her son to hear it, full of her reflections about love, sacrifice, and survival and all of the soul-crushing choices she was forced to make as a woman in Afghanistan.
