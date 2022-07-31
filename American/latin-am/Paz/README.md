@@ -1,3 +1,6 @@
+https://www.theparisreview.org/interviews/2192/the-art-of-poetry-no-42-octavio-paz
+
+
 My Life with the Wave
 Octavio Paz
 Born in ll4exico City, Octavio Paz (1914- ) was educated in Catholic
