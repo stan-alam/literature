@@ -1,0 +1,14 @@
+## The Oxford Handbook of the Bronze Age Aegean
+
+https://github.com/stan-alam/History/tree/master/PreHistory/Minoan
+(hashtag) Pre-history
+```text
+The Oxford Handbook of the Bronze Age Aegean
+by Eric H. Cline (Goodreads Author) (Editor)
+ 4.19  ·   Rating details ·  36 ratings  ·  4 reviews
+The Greek Bronze Age, roughly 3000 to 1000 BCE, witnessed the flourishing of the Minoan and Mycenean civilizations, the earliest expansion of trade in the Aegean and wider Mediterranean Sea, the development of artistic techniques in a variety of media, and the evolution of early Greek religious practices and mythology. The period also witnessed a violent conflict in Asia Minor between warring peoples in the region, a conflict commonly believed to be the historical basis for Homer's Trojan War. The Oxford Handbook of the Bronze Age Aegean provides a detailed survey of these fascinating aspects of the period, and many others, in sixty-six newly commissioned articles.
+
+Divided into four sections, the handbook begins with Background and Definitions, which contains articles establishing the discipline in its historical, geographical, and chronological settings and in its relation to other disciplines. The second section, Chronology and Geography, contains articles examining the Bronze Age Aegean by chronological period (Early Bronze Age, Middle Bronze Age, Late Bronze Age). Each of the periods are further subdivided geographically, so that individual articles are concerned with Mainland Greece during the Early Bronze Age, Crete during the Early Bronze Age, the Cycladic Islands during the Early Bronze Age, and the same for the Middle Bronze Age, followed by the Late Bronze Age. The third section, Thematic and Specific Topics, includes articles examining thematic topics that cannot be done justice in a strictly chronological/geographical treatment, including religion, state and society, trade, warfare, pottery, writing, and burial customs, as well as specific events, such as the eruption of Santorini and the Trojan War. The fourth section, Specific Sites and Areas, contains articles examining the most important regions and sites in the Bronze Age Aegean, including Mycenae, Tiryns, Pylos, Knossos, Kommos, Rhodes, the northern Aegean, and the Uluburun shipwreck, as well as adjacent areas such as the Levant, Egypt, and the western Mediterranean.
+
+Containing new work by an international team of experts, The Oxford Handbook of the Bronze Age Aegean represents the most comprehensive, authoritative, and up-to-date single-volume survey of the field. It will be indispensable for scholars and advanced students alike.
+```
