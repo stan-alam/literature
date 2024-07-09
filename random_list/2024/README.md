@@ -1,6 +1,7 @@
 # July 
 
-Art Monster by Marin Kosut [NF]
+- [x] Art Monster by Marin Kosut [NF]
+- [ ] complete
 
 Concerning the Future of Souls by Joy Williams [F]
 
@@ -22,7 +23,8 @@ Paul Celan and the Trans-Tibetan Angel by Yoko Tawada, tr. Susan Bernofsky [F]
 
 The Anthropologists by Ayşegül Savaş [F]
 
-The Coin by Yasmin Zaher [F]
+- [x] The Coin by Yasmin Zaher [F]
+- [ ] complete
 
 Black Intellectuals and Black Society by Martin L. Kilson [NF]
 
